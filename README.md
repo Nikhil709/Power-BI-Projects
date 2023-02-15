@@ -1,1 +1,0 @@
-Awesome Chocolates Dashboard
